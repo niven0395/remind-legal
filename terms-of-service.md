@@ -116,7 +116,8 @@ If any provision of these Terms is found unenforceable, the remaining provisions
 For questions about these Terms, contact us at:
 
 **Creation Methods Limited**  
-Email: support@creationmethods.com
+Email: nivensivarajah@gmail.com
+
 
 ---
 
