@@ -88,8 +88,7 @@ We may update this Privacy Policy periodically. We will notify you of significan
 If you have questions about this Privacy Policy, contact us at:
 
 **Creation Methods Limited**  
-Email: privacy@creationmethods.com
-
+Email: nivensivarajah@gmail.com
 ---
 
 By using Remind, you agree to this Privacy Policy.
