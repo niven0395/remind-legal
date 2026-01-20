@@ -73,7 +73,7 @@ You have the right to:
 - **Opt-out**: Disable optional features like location services
 - **Export**: Export your data through iCloud
 
-To exercise these rights, contact us at privacy@creationmethods.com
+To exercise these rights, contact us at nivensivarajah@gmail.com
 
 ## 8. Children's Privacy
 
